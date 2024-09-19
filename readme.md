@@ -1,1 +1,1 @@
-Jogue: https://lmajowka.github.io/webloteria/
+Jogue: https://NossaCoin.github.io/BTC_Lottery/
